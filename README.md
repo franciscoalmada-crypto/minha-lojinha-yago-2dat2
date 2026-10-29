@@ -1,0 +1,1 @@
+# minha-lojinha-yago-2dat2
